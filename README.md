@@ -1,4 +1,5 @@
-<img width="2027" height="1596" alt="1000019772" src="https://github.com/user-attachments/assets/95a735a1-3025-4be3-9c9d-04eb54be3b3c" />
+![1000019773](https://github.com/user-attachments/assets/7796bd62-5937-4a4e-8e42-bf8ddaec4bdc)
+
 
 # MICROCHIPDOTCOM
 Hatred is my middle name, don't try to force me to be kind if you get yourself involved aswell. it's a bit annoying 
